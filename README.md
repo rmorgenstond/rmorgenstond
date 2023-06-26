@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Rodney Morgenstond.
-- 👀 I’m interested in living out my new beginning. I have been given a second chance at life and I want to live out my dreams.
+- 👀 I am interested in music, dancing, and exploring new worlds, whether in real life, on the internet, or by trying something new in my general life.
 - 🌱 I’m currently studying Data Analytics, it is a new field for me, but I love everything I have learned this far.
-- 💞️ I’m looking to collaborate on various projects as I am eager to learn this new world.
+- 💞️ I’m looking to work together with like-minded individuals on new projects that can teach me how to be a great data analyst.
 - 📫 You can reach me at rmorgenstond@gmail.com
   
 
